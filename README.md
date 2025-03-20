@@ -1,4 +1,4 @@
-
+With expertise in Industrial Electrical Engineering and Computer Science, I merge theoretical depth with practical mastery. Adept in software development, I am driven to redefine efficiency and pioneer innovation.
   ### Connect with Me 🌍
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/ammari-amine-sa80j85ed)
